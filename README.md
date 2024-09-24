@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @kcgerald
 - 👀 I’m interested in Data Analysis and Cyber security 
 - 🌱 I’m currently learning cyber security and advanced analysis
-- 💞️ I’m looking to collaborate on a firm with good analysts and make good living 
+- 💞️ I’m looking to collaborate on a firm with good analysts and make good work 
 - 📫 How to reach me kcgerald78@gmail.com ,+2348069430189
 - 😄 Pronouns:He
 - ⚡ Fun fact:Gamer,music
